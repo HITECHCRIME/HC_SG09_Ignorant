@@ -6,7 +6,10 @@ Hitech Crime Single 'Ignorant'
 [CHORUS]
 Out of their way, out of their way
 Here I come I will shout it in your face
+
 Until you know that you're wrong x2
+Finding your true self, though one 
+run
 
 [VERSE 1] 1:19
 feeling twisted did the count outside - lost it all
