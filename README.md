@@ -73,17 +73,6 @@ I am honest, cruising reckless (8)
 Hive of hornets, truth is worthless (8)
 (as a menace) truth is worthless
 
-[HOOK]
-I ain't shouting for the dough - 
-Wanna throw and catch my flow
-All this hiss it ain't in my show
-People push me, when I'm low 
-
-Don't you get it, no forgetting (8)
-I am honest, cruising reckless (8)
-Hive of hornets, truth is worthless (8)
-(as a menace) truth is worthless
-
 [CHORUS]
 Out of their way, out of their way
 Here I come I will shout it in your face
