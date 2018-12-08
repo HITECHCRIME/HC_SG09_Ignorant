@@ -3,15 +3,6 @@ Hitech Crime Single 'Ignorant'
 
 **Irma Beat Retnik**
 
-[CHORUS]
-Out of their way, out of their way
-Here I come I will shout it in your face
-
-Until you know that you're wrong x2
-Finding your true self, though one 
-run
-
-[VERSE 1] 1:19
 feeling twisted did the count outside - lost it all
 I assumed a role for you - fuck - what I felt inside 
 it crushed my soul - now I know, damn - knew it all along 
@@ -27,6 +18,25 @@ Don't you get it, no forgetting (8)
 I am honest, cruising reckless (8)
 Hive of hornets, truth is worthless (8)
 (as a menace) truth is worthless
+
+[CHORUS]
+Out of their way, out of their way
+Here I come I will shout it in your face
+This time ain't gonna be nice
+
+Out of their way, out of their way
+Here I come I will shout it in your face
+This time ain't gonna be nice
+
+
+[VERSE 1] 1:19
+feeling twisted did the count outside - lost it all
+I assumed a role for you - fuck - what I felt inside 
+it crushed my soul - now I know, damn - knew it all along 
+basically the fault is mine, I ain't doing what I'm told yeah
+
+Finding your true self, though one 
+run
 
 [CHORUS]
 Out of their way, out of their way
