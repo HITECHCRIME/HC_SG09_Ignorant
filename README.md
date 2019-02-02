@@ -4,7 +4,7 @@ Hitech Crime Single 'Ignorant'
 **Irma Beat Retnik**
 
 [INTRO]
-feeling twisted did the count outside - lost it all
+feeling twisted did the count outside - lost it all (lost to brawl)
 I assumed a role for you - fuck - what I felt inside 
 it crushed my soul - now I know, damn - knew it all along 
 basically the fault is mine, I ain't doing what I'm told yeah
@@ -17,7 +17,7 @@ people push me when I'm low
 don't you get it, no forgetting (8)
 i am honest, cruising reckless (8)
 hive of hornets, truth is worthless (8)
-(as a menace) truth is worthless
+truth is worthless (as a menace) 
 
 [CHORUS]
 Out of their way, out of their way
@@ -29,8 +29,8 @@ Here I come I will shout it in your face
 [VERSE 1]
 Finding your true self, though one 
 Look it's your black double, run
-x
-x
+You're in trouble hun
+Brushing needs off my shoulders
 x
 x
 x
