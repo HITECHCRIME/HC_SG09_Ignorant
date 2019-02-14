@@ -3,6 +3,7 @@ Hitech Crime Single 'Ignorant'
 
 **Irma Beat Retnik**
 
+
 [INTRO]
 feeling twisted did the count outside - lost it all (lost to brawl)
 I assumed a role for you - fuck - what I felt inside 
