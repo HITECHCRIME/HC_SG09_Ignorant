@@ -32,12 +32,12 @@ Here I come I will shout it in your face
 Finding your true self, though one 
 Look it's your black double, run
 You're in trouble hun
-Brushing needs off my shoulders
+Brushing your needs off my shoulders
+Cold elbow through the face
 x
 x
 x
-x
-x
+slow down, 
 x
 
 [INTRO] 1:19
