@@ -37,7 +37,7 @@ Cold elbow through the face
 x
 x
 x
-slow down, 
+slow down,
 x
 
 [INTRO] 1:19
