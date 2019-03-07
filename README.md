@@ -34,11 +34,12 @@ Look it's your black double, run
 You're in trouble hun
 Brushing your needs off my shoulders
 Cold elbow through the face
-x
-x
-x
 slow down,
-x
+maybe it's too much for you 
+maybe I'm too aggro but I found my crew
+lemme tell you the truth in a fair way 
+but way too many things you did to me
+no reason to make me sway
 
 [INTRO] 1:19
 feeling twisted did the count outside - lost it all
@@ -75,12 +76,7 @@ black heart, black mind, haven't seen the horns
 haven't seen the horns ya (haven't seen the horns)
 (that's not how you're born)
 
-[VERSE 2]
-maybe it's too much for you 
-maybe I'm too aggro but I found my crew
-lemme tell you the truth in a fair way 
-but way too many things you did to me
-no reason to make me sway
+
 
 out of their way, out of their way
 
