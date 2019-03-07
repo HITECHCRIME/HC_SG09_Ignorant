@@ -29,17 +29,19 @@ Out of their way, out of their way
 Here I come I will shout it in your face
 
 [VERSE 1]
-Finding your true self, though one 
-Look it's your black double, run
+Finding your true self, such a though one 
+Look it's black double, run (your)
 You're in trouble hun
-Brushing your needs off my shoulders
-Cold elbow through the face
-slow down,
+brushing needs off my shoulders
+slow down, crush the frown
+
 maybe it's too much for you 
 maybe I'm too aggro but I found my crew
 lemme tell you the truth in a fair way 
 but way too many things you did to me
 no reason to make me sway
+
+Cold elbow through the face
 
 [INTRO] 1:19
 feeling twisted did the count outside - lost it all
