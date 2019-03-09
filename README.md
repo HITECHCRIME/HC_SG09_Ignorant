@@ -30,14 +30,14 @@ here I come I will shout it in your face
 finding your true self ya, such a though one 
 look inside, bring forth black double, 
 blindful courage, you should run
-you're in trouble hun 
 
+you're in trouble hun 
 brushing pointless needs off, dust my shoulders
 
 think of absolution, mindless always passed it
 for solution with too many problems
 now I'm not inclined to solve them
-heed the meaning, breeding hate just to hide it 
+heed the meaning, breeding hate just to hide it (like a poem) 
 
 
 
