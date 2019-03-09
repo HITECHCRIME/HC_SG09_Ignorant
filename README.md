@@ -3,10 +3,8 @@ Hitech Crime Single 'Ignorant'
 
 **Irma Beat Retnik**
 
-
-
 [INTRO]
-feeling twisted did (took) the count outside - lost it all (lost to brawl)
+feeling twisted did the count outside - lost it all 
 I assumed a role for you - fuck - what I felt inside 
 it crushed my soul - now I know, damn - knew it all along 
 basically the fault is mine, I ain't doing what I'm told yeah
@@ -16,30 +14,34 @@ i ain't shouting for the dough -
 wanna throw and catch my flow
 all this hiss it ain't in my show
 people push me when I'm low 
-don't you get it, no forgetting (8)
-i am honest, cruising reckless (8)
-hive of hornets, truth is worthless (8)
-truth is worthless (as a menace) 
+don't you get it, no forgetting
+i am honest, cruising reckless
+hive of hornets, truth is worthless
+truth is worthless
 
 [CHORUS]
-Out of their way, out of their way
-Here I come I will shout it in your face
-This time ain't gonna be nice
-Out of their way, out of their way
-Here I come I will shout it in your face
+out of their way, out of their way (my way?)
+here I come I will shout it in your face
+this time ain't gonna be nice
+out of their way, out of their way
+here I come I will shout it in your face
 
 [VERSE 1]
-Finding your true self, such a though one 
-Look it's black double, run (your)
-You're in trouble hun
-brushing needs off my shoulders
-slow down, crush the frown
+finding your true self, such a though one 
+look it's your black double, you should run (your)
+you're in trouble hun, never thought
+you're the one with so many problems
+brushing your needs off my shoulders
+good you hide it not inclined to solve them
 
+
+
+slow down, crush the frown
 maybe it's too much for you 
 maybe I'm too aggro but I found my crew
 lemme tell you the truth in a fair way 
 but way too many things you did to me
-no reason to make me sway
+i've got no single reason to make me sway
 
 Cold elbow through the face
 
