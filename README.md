@@ -39,8 +39,8 @@ think of absolution
 mindful me has always passed it
 for solution with too many problems
 now I'm not inclined to solve them (schem)
-heed the meaning, spitting hate like poems
-just to hide it later - dime
+heed the meaning, spitting h9ate like poems
+just to hide it later - (dime)
 if you must, dim my words I'll be fine
 
 [INTRO] 1:19
