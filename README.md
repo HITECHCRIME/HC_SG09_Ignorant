@@ -27,12 +27,17 @@ out of their way, out of their way
 here I come I will shout it in your face
 
 [VERSE 1]
-finding your true self, such a though one 
-look it's your black double, you should run (your)
-you're in trouble hun, never thought
-you're the one with so many problems
-brushing your needs off my shoulders
-good you hide it not inclined to solve them
+finding your true self ya, such a though one 
+look inside, bring forth black double, 
+blindful courage, you should run
+you're in trouble hun, 
+
+never thought of
+the solution with so many problems
+brushing pointless needs off, don't dust my shoulders
+good you hide it, never pass it
+not inclined to solve them
+
 
 
 
