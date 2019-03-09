@@ -28,32 +28,23 @@ here I come I will shout it in your face
 
 [VERSE 1]
 finding your true self ya, such a though one (blah)
-look inside, bring it forth - black double, 
-blindful courage, you should run
-
+look inside, bring it forth, black double  
+blindful courage, you should run 
 you're in trouble hun
 
-brushing off pointless needs
-dust my shoulders,
+brushing off pointless needs 
+dust my shoulders on the other side
 
 think of absolution, 
-mindless me has always passed it
+mindful me has always passed it
 for solution with too many problems
-now I'm not inclined to solve them (schem)
+now I'm not inclined to solve the schem (schem)
 heed the meaning, spitting hate like poems
-just to hide it later - 
+just to hide it later - dime
+
 
 if you must 
 dim my words I'll be fine
-
-slow down, crush the frown
-maybe it's too much for you 
-maybe I'm too aggro but I found my crew
-lemme tell you the truth in a fair way 
-but way too many things you did to me
-i've got no single reason to make me sway
-
-Cold elbow through the face
 
 [INTRO] 1:19
 feeling twisted did the count outside - lost it all
@@ -125,3 +116,11 @@ anymore
 
 
 BRUTAL HONESTY, DEPRESSION
+
+slow down, crush the frown
+maybe it's too much for you 
+maybe I'm too aggro but I found my crew
+lemme tell you the truth in a fair way 
+but way too many things you did to me
+i've got no single reason to make me sway
+Cold elbow through the face
