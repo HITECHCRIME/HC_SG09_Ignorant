@@ -34,8 +34,8 @@ you're in trouble hun
 
 brushing off pointless needfulness 
 dust my shoulders on the other side
+think of absolution 
 
-think of absolution, 
 mindful me has always passed it
 for solution with too many problems
 now I'm not inclined to solve them (schem)
