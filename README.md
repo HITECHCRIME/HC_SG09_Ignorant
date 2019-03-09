@@ -30,13 +30,15 @@ here I come I will shout it in your face
 finding your true self ya, such a though one 
 look inside, bring forth black double, 
 blindful courage, you should run
-you're in trouble hun, 
+you're in trouble hun 
 
-never thought of
-the solution with so many problems
-brushing pointless needs off, don't dust my shoulders
-good you hide it, never pass it
-not inclined to solve them
+brushing pointless needs off, dust my shoulders
+
+heed the meaning, breeding hate just to hide it 
+
+think of absolution, mindless always passed it
+for solution with too many problems
+now I'm not inclined to solve them
 
 
 
