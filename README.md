@@ -27,20 +27,24 @@ out of their way, out of their way
 here I come I will shout it in your face
 
 [VERSE 1]
-finding your true self ya, such a though one 
-look inside, bring forth black double, 
-blindful courage, you should run even if
-you're in trouble hun 
+finding your true self ya, such a though one (blah)
+look inside, bring it forth - black double, 
+blindful courage, you should run
 
-brushing pointless needs off, dust my shoulders
+you're in trouble hun
 
-think of absolution, mindless always passed it
+brushing off pointless needs
+dust my shoulders,
+
+think of absolution, 
+mindless me has always passed it
 for solution with too many problems
-now I'm not inclined to solve them
-heed the meaning, breeding hate just to hide it (like a poem) 
+now I'm not inclined to solve them (schem)
+heed the meaning, spitting hate like poems
+just to hide it later - 
 
-
-
+if you must 
+dim my words I'll be fine
 
 slow down, crush the frown
 maybe it's too much for you 
