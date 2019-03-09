@@ -34,11 +34,10 @@ you're in trouble hun
 
 brushing pointless needs off, dust my shoulders
 
-heed the meaning, breeding hate just to hide it 
-
 think of absolution, mindless always passed it
 for solution with too many problems
 now I'm not inclined to solve them
+heed the meaning, breeding hate just to hide it 
 
 
 
