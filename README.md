@@ -32,13 +32,13 @@ look inside, bring it forth, black double
 blindful courage, you should run 
 you're in trouble hun
 
-brushing off pointless needs 
+brushing off pointless needfulness 
 dust my shoulders on the other side
 
 think of absolution, 
 mindful me has always passed it
 for solution with too many problems
-now I'm not inclined to solve the schem (schem)
+now I'm not inclined to solve them (schem)
 heed the meaning, spitting hate like poems
 just to hide it later - dime
 
@@ -80,10 +80,6 @@ i will drag you down to hell where your soul belongs -
 black heart, black mind, haven't seen the horns
 haven't seen the horns ya (haven't seen the horns)
 (that's not how you're born)
-
-
-
-out of their way, out of their way
 
 [HOOK]
 I ain't shouting for the dough - 
