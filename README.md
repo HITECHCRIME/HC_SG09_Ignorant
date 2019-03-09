@@ -29,9 +29,9 @@ here I come I will shout it in your face
 [VERSE 1]
 finding your true self ya, such a though one 
 look inside, bring forth black double, 
-blindful courage, you should run
-
+blindful courage, you should run even if
 you're in trouble hun 
+
 brushing pointless needs off, dust my shoulders
 
 think of absolution, mindless always passed it
