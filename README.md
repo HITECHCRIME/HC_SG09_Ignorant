@@ -101,12 +101,9 @@ Here I come I will shout it in your face
 
 ---
 Here I come I will shout it in your face
-
 This time, I ain't gonna be nice 
 anymore
-
 (into your precious sadness, feeding parasites lodged in your mind)
-
 
 BRUTAL HONESTY, DEPRESSION
 
