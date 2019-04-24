@@ -3,6 +3,10 @@ Hitech Crime Single 'Ignorant'
 
 **Irma Beat Retnik**
 
+## Lyrics
+
+```
+
 [INTRO]
 feeling twisted did the count outside - lost it all 
 I assumed a role for you - fuck - what I felt inside 
@@ -95,10 +99,9 @@ This time ain't gonna be nice
 Out of their way, out of their way
 Here I come I will shout it in your face
 
+```
 
-
-
-
+## Notes
 
 ---
 Here I come I will shout it in your face
