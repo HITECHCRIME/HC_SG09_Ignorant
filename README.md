@@ -118,3 +118,6 @@ lemme tell you the truth in a fair way
 but way too many things you did to me
 i've got no single reason to make me sway
 Cold elbow through the face
+
+
+One of the earliest prototypes from 2018. It was a time for rather aggressive lyrics to express that slow-burning impending relationship trainwreck and treatment injustice. Thank goodness that ended quicker than previous couple of ones (survived 5 months of struggling with a real bad case of a denialist untreated bpd on the other side, I hope it is for the better for both sides). .
