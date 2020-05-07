@@ -99,6 +99,8 @@ This time ain't gonna be nice
 Out of their way, out of their way
 Here I come I will shout it in your face
 
+humming high pitch melody
+
 ```
 
 ## Notes
